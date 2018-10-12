@@ -1,2 +1,2 @@
-# mayra559.github
+# mayra559.github.io
 my website
